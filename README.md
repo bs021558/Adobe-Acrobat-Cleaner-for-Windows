@@ -1,0 +1,1 @@
+# Adobe-Acrobat-Cleaner-for-Windows
